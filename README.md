@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @aliboso
+- 👀 I’m interested in opportnities that are available for the youth.
+- 🌱 I’m currently learning A+ and N+
+- 💞️ I’m looking to collaborate on tech opportunities
+- 📫 How to reach me aliboso@live.com
+- 😄 Pronouns: Gana
+- ⚡ Fun fact: I do not grow a moustache, I am 33 years. Good genes.
